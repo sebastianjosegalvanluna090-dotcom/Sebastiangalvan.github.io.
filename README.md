@@ -1,1 +1,0 @@
-# Sebastiangalvan.github.io.
